@@ -1,16 +1,17 @@
-## Hi there 👋
+ℳ𝒶𝓎 𝒹𝒶𝒽𝓁𝒾𝒶𝓈 ℊ𝓇ℴ𝓌 𝓌𝒽ℯ𝓇ℯ ℐ 𝓌𝒶𝓁𝓀..ᐟ⊹ ࣪ ﹏𓊝﹏𓂁﹏⊹ ࣪ ˖
+<img width="800" height="340" alt="tumblr_62153bdce30eec826193244ccb58951c_369448ac_1280" src="https://github.com/user-attachments/assets/0f5970da-d948-47a0-b6f5-b2a1868eb676" />
 
-<!--
-**piuyuuu/piuyuuu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+˗ˏˋ ★ ˎˊ˗
+𝚢𝚘𝚞 𝚖𝚊𝚢 𝚌𝚊𝚕𝚕 𝚖𝚎 𝚕𝚢𝚗/𝚕𝚢𝚟!໒꒱ིྀ༝⁺
 
-Here are some ideas to get you started:
+⋅˚₊‧ ଳ ‧₊˚ ⋅
+𝙸'𝚖 𝚟𝚎𝚛𝚢 𝚘𝚙𝚎𝚗 𝚝𝚘 𝚒𝚗𝚝𝚎𝚛𝚊𝚌𝚝 𝚠𝚒𝚝𝚑 𝚊𝚗𝚢𝚘𝚗𝚎 𝚜𝚘 𝚗𝚎𝚟𝚎𝚛 𝚋𝚎 𝚊𝚏𝚛𝚊𝚒𝚍 𝚝𝚘 𝚊𝚙𝚙𝚛𝚘𝚊𝚌𝚑 𝚖𝚎 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+˚₊‧꒰ა ♡ ໒꒱ ‧₊˚
+𝙸 𝚍𝚘𝚗𝚝 𝚞𝚜𝚞𝚊𝚕𝚕𝚢 𝚒𝚗𝚝𝚎𝚛𝚊𝚌𝚝 𝚏𝚒𝚛𝚜𝚝 𝚋𝚎𝚌𝚊𝚞𝚜𝚎 𝚘𝚏 𝚖𝚢 𝚕𝚘𝚠 𝚜𝚘𝚌𝚒𝚊𝚕 𝚜𝚔𝚒𝚕𝚕𝚜 𝚋𝚞𝚝 𝙸 𝚋𝚎𝚌𝚘𝚖𝚎 𝚖𝚘𝚛𝚎 𝚝𝚊𝚕𝚔𝚊𝚝𝚒𝚟𝚎 𝚊𝚗𝚍 𝚕𝚒𝚟𝚎𝚕𝚢 𝚒𝚏 𝚠𝚎 𝚜𝚑𝚊𝚛𝚎 𝚝𝚑𝚎 𝚜𝚊𝚖𝚎 𝚎𝚗𝚎𝚛𝚐𝚢 𝚘𝚛 𝚒𝚗𝚝𝚎𝚛𝚎𝚜𝚝𝚜! 
+
+⋅˚₊‧ ୨୧ ‧₊˚ ⋅
+𝙸'𝚖 𝚞𝚜𝚞𝚊𝚕𝚕𝚢 𝚜𝚎𝚎𝚗 𝚒𝚗 𝚝𝚑𝚎 𝚑𝚘𝚢𝚘𝚟𝚎𝚛𝚜𝚎 𝚊𝚛𝚎𝚊 𝚜𝚘𝚘𝚘 𝚒𝚏 𝚢𝚘𝚞'𝚛𝚎 𝚕𝚘𝚘𝚔𝚒𝚗𝚐 𝚏𝚘𝚛 𝚖𝚎, 𝚢𝚘𝚞 𝚔𝚗𝚘𝚠 𝚠𝚑𝚎𝚛𝚎 𝚝𝚘 𝚕𝚘𝚘𝚔<3
+<img width="2040" height="1080" alt="Reverse_ 1999 full 4358275" src="https://github.com/user-attachments/assets/56dc08db-b573-4ca0-b377-3f3580d7d9e1" />
+
+｡ ₊°༺❤︎༻°₊ ｡ 
