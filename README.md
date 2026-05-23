@@ -1,4 +1,7 @@
-<p align="center">ℳ𝒶𝓎 𝒹𝒶𝒽𝓁𝒾𝒶𝓈 ℊ𝓇ℴ𝓌 𝓌𝒽ℯ𝓇ℯ ℐ 𝓌𝒶𝓁𝓀..ᐟ⊹ ࣪ ﹏𓊝﹏𓂁﹏⊹ ࣪ ˖
+<p align="center">ℳ𝒶𝓎 𝒹𝒶𝒽𝓁𝒾𝒶𝓈 ℊ𝓇ℴ𝓌 𝓌𝒽ℯ𝓇ℯ ℐ 𝓌𝒶𝓁𝓀..
+  
+ <p align="center"> ᐟ⊹ ࣪ ﹏𓊝﹏𓂁﹏⊹ ࣪ ˖
+<p align="center">𝖸𝗈𝗎𝗋 𝗋𝖺𝗒 𝗈𝖿 𝗌𝗎𝗇𝗌𝗁𝗂𝗇𝖾 𝖺𝗇𝖽 𝗀𝖾𝗇𝗍𝗅𝖾 𝖼𝗅𝗈𝗎𝖽𝗌
 <img width="2040" height="1080" alt="tumblr_62153bdce30eec826193244ccb58951c_369448ac_1280" src="https://github.com/user-attachments/assets/0f5970da-d948-47a0-b6f5-b2a1868eb676" />
 
 ˗ˏˋ ★ ˎˊ˗
